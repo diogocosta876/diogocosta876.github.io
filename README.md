@@ -1,1 +1,1 @@
-Visit the website [here](https://www.diogocosta876.github.io)
+Visit the website [here](https://diogocosta876.github.io)
